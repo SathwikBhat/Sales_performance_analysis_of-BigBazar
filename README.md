@@ -1,0 +1,5 @@
+# Sales_performance_analysis_of-BigBazar![Screenshot 2023-08-12 212808](https://github.com/SathwikBhat/Sales_performance_analysis_of-BigBazar/assets/141931631/79bc3b96-5a17-4bf1-a0fd-bf3aede84903)
+![Screenshot 2023-08-12 212849](https://github.com/SathwikBhat/Sales_performance_analysis_of-BigBazar/assets/141931631/d2d20543-251f-413a-aec0-ab41653dfce4)
+![3](https://github.com/SathwikBhat/Sales_performance_analysis_of-BigBazar/assets/141931631/a63ce9cf-10d9-4e81-8b51-a723a6c6fc97)
+![Screenshot 2023-08-12 213002](https://github.com/SathwikBhat/Sales_performance_analysis_of-BigBazar/assets/141931631/31cbbb74-c9cd-429f-89f2-91d5face9194)
+![Screenshot 2023-08-12 213057](https://github.com/SathwikBhat/Sales_performance_analysis_of-BigBazar/assets/141931631/3d67dc97-543e-40c5-bfdb-47f376eb6ca7)
